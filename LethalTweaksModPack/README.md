@@ -1,1 +1,0 @@
-#This is a modpack for friends so you guys should know how to install these by now
